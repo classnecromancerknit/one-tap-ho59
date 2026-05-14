@@ -1,4 +1,4 @@
-#  
+#  one tap advanced Script is the best one tap Script, featuring auto-collect and invisibility. Safe and powerful for all your needs.
 
 
 
